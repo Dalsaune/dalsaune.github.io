@@ -1,3 +1,2 @@
-# dalsaune.github.io
+Her er det ingenting...foreløpig...
 
-Velkommen hit
